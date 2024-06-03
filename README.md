@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ComicTunic6356
+- 👀 I’m interested in becoming an acounting
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on anything basic that will help me learn
+- 📫 How to reach me Discord: Thisispainful
