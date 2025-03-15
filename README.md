@@ -2,4 +2,3 @@
 - 👀 I’m interested in becoming a game developer
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on anything basic that will help me learn
-- 📫 How to reach me Discord: Thisispainful
